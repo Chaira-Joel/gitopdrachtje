@@ -27,3 +27,7 @@
 11. Otional – Grate some vegan cheese to top
 12. Bake in the preheat oven at 180 degrees for 20 mins until the pasta is soft
 13.Easiest way to cut is using a scissors
+
+
+# Ingredients
+Yes these are the ingredients 
