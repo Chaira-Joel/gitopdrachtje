@@ -30,6 +30,32 @@
 
 
 # Ingredients
-Yes these are the ingredients 
-Nog meer ingredienten  en nog meer
-nog meer ingredienten
+INGREDIENTS
+ 
+1. Tomato sauce
+2. 2 red onions
+3. 3 cloves of garlic
+4. 1 fresh chilli
+5. 400 g of sweet potatoes
+6. 1 courgette
+7. 2 yellow peppers
+8. 1 x 400g tinned cooked lentils
+9. 2 x 400g tins of chopped tomatoes
+10. 100 g tomato puree
+11. 5 sun dried tomatoes leathery ones
+12. 100 ml red wine
+13. 1 bay leaf
+14. a few sprigs of thyme
+15. 1.5 tbsp maple syrup
+16. 1 tsp salt
+17. 50 g baby spinach
+18. High protein Bechamel sauce
+19. 3 tbsp olive oil
+20. 3 tbsp Gram flour
+21. 50 ml light tahini
+22. 300 g silken tofu
+23. 200 ml oat milk
+24. Pinch salt
+25. Pinch of ground black pepper
+26. ¼ tsp Nutmeg.
+27. 100 g vegan cheese of choice
